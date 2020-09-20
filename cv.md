@@ -5,6 +5,7 @@
 #### VK: @paha_maca
 #### e-mail: paha_maca@mail.ru
 #### github: @VoliKing
+#### Discord: VoliKing#9794
 
 ## Summary
 
